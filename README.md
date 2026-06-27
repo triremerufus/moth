@@ -6,7 +6,7 @@ your screen. Take a walk.
 
 Many thanks to [Nick Tikhonov](https://www.ntik.me/posts/voice-agent)
 
-Essay: [Moths to Flame](https://porquenolostres.substack.com) -- the why is in there.
+Essay: [Moths to Flame](https://porquenolostres.substack.com/p/moths-to-flame) -- the why is in there.
 
 ---
 
